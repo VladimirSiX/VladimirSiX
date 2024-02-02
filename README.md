@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me vladimir82fff@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: The capacity of the human brain exceeds 4 terabytes.
+- ⚡ Fun fact: Up to 500 kg of Martian meteorite falls to Earth per year.
 
 <!---
 VladimirSiX/VladimirSiX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
